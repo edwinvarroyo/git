@@ -1,2 +1,2 @@
 # git
-#si o khe?
+#apoco no carnal :v
